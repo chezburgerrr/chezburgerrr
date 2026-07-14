@@ -27,6 +27,7 @@
 
 ``𝙘+𝙝 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 𝙖𝙣𝙙 𝙝𝙞𝙜𝙝𝙡𝙮 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 𝙖𝙩 𝙖𝙡𝙡 𝙩𝙞𝙢𝙚𝙨!``
 
+``𝙞 𝙙𝙤𝙣𝙩 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥! 𝙞 𝙤𝙣𝙡𝙮 𝙡𝙤𝙫𝙚 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 𝙢𝙖𝙞𝙣𝙡𝙮 𝙘𝙖𝙪𝙨𝙚 𝙞 𝙨𝙚𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 𝙞𝙣 𝙩𝙝𝙚𝙢.``
 ──── ୨୧ ────
 
 ``im currently very busy studying for my senior national exams, so expect me to be barely online / not online at all on any socials.`` 
@@ -37,7 +38,6 @@
 
 <img width="1200" height="675" alt="heyyy" src="https://github.com/user-attachments/assets/4e6e956a-2b9f-4664-a429-434516f7e27b" />
 
-hes so gorgeous ughh☹️😭😭😭😭
 
 <img width="200" height="200" alt="panchiko" src="https://github.com/user-attachments/assets/d3163ce3-566f-4c26-be73-de5fd28b7ae9" />
 <img width="200" height="200" alt="lamp" src="https://github.com/user-attachments/assets/bb0b98e8-8803-434b-8a5e-2ca47eee8a01" />
