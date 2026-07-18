@@ -1,7 +1,7 @@
 <img width="1200" height="675" alt="v" src="https://github.com/user-attachments/assets/f19ef09a-83f7-44a3-b2c1-414657b5f4b5" />
 
 
-``𝙝𝙞 𝙡𝙤𝙡 𝙞 𝙡𝙞𝙠𝙚 𝙫....``
+``<h1 style="color:skyblue;">𝙝𝙞 𝙡𝙤𝙡 𝙞 𝙡𝙞𝙠𝙚 𝙫....``</h1>
 
 ──── ୨୧ ────
 
@@ -39,7 +39,7 @@
 
 <img width="1200" height="675" alt="heyyy" src="https://github.com/user-attachments/assets/4e6e956a-2b9f-4664-a429-434516f7e27b" />
 
-Hi lol...
+
 
 <img width="200" height="200" alt="panchiko" src="https://github.com/user-attachments/assets/d3163ce3-566f-4c26-be73-de5fd28b7ae9" />
 <img width="200" height="200" alt="lamp" src="https://github.com/user-attachments/assets/bb0b98e8-8803-434b-8a5e-2ca47eee8a01" />
