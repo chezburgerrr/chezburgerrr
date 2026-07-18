@@ -40,7 +40,7 @@
 
 
 
-<img width="200" height="200" alt="panchiko" src="https://github.com/user-attachments/assets/d3163ce3-566f-4c26-be73-de5fd28b7ae9" />
+
 <img width="200" height="200" alt="lamp" src="https://github.com/user-attachments/assets/bb0b98e8-8803-434b-8a5e-2ca47eee8a01" />
 <img width="200" height="200" alt="slowdive" src="https://github.com/user-attachments/assets/b49d7623-afe7-4580-9d5b-196335c23f35" />
 <img width="200" height="200" alt="type" src="https://github.com/user-attachments/assets/453f9159-dda3-45de-9b18-613aa12f1eb5" />
