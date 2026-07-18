@@ -1,7 +1,7 @@
 <img width="1200" height="675" alt="v" src="https://github.com/user-attachments/assets/f19ef09a-83f7-44a3-b2c1-414657b5f4b5" />
 
 
-``𝙝𝙞 𝙡𝙤𝙡 𝙞 𝙡𝙞𝙠𝙚 𝙫....``
+```𝙝𝙞 𝙡𝙤𝙡 𝙞 𝙡𝙞𝙠𝙚 𝙫....```
 
 ──── ୨୧ ────
 
