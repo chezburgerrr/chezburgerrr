@@ -1,6 +1,7 @@
-<img width="1200" height="675" alt="v" src="https://github.com/user-attachments/assets/f19ef09a-83f7-44a3-b2c1-414657b5f4b5" />
+<img width="1200" height="645" alt="vvv" src="https://github.com/user-attachments/assets/7571160b-1887-48ed-aa09-bd6ef5763207" />
 
-``{  𝙝𝙞 𝙡𝙤𝙡 𝙞 𝙡𝙞𝙠𝙚 𝙫... }``
+
+``  𝙝𝙞 𝙡𝙤𝙡 𝙞 𝙡𝙞𝙠𝙚 𝙫... ``
 
 ──── ୨୧ ────
 
@@ -36,7 +37,8 @@
 
 ``(づ> v <)づ♡ ``
 
-<img width="1200" height="675" alt="heyyy" src="https://github.com/user-attachments/assets/4e6e956a-2b9f-4664-a429-434516f7e27b" />
+<img width="1200" height="675" alt="vvv2" src="https://github.com/user-attachments/assets/cdf758b6-6263-409f-a805-10bbe62cca75" />
+
 
 
 
@@ -44,6 +46,8 @@
 <img width="200" height="200" alt="lamp" src="https://github.com/user-attachments/assets/bb0b98e8-8803-434b-8a5e-2ca47eee8a01" />
 <img width="200" height="200" alt="slowdive" src="https://github.com/user-attachments/assets/b49d7623-afe7-4580-9d5b-196335c23f35" />
 <img width="200" height="200" alt="type" src="https://github.com/user-attachments/assets/453f9159-dda3-45de-9b18-613aa12f1eb5" />
+<img width="200" height="200" alt="pan" src="https://github.com/user-attachments/assets/85ea6a5e-d980-4f75-8d99-253d4d84a340" />
+
 
 <img width="800" height="300" alt="chezburger" src="https://github.com/user-attachments/assets/f4346f5b-e07b-45ca-bb7a-b5efc4a5bbb3" />
 
