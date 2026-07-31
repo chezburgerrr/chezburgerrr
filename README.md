@@ -30,6 +30,8 @@
 ``𝙞 𝙙𝙤𝙣𝙩 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥! 𝙞 𝙤𝙣𝙡𝙮 𝙡𝙤𝙫𝙚 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 𝙢𝙖𝙞𝙣𝙡𝙮 𝙘𝙖𝙪𝙨𝙚 𝙞 𝙨𝙚𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 𝙞𝙣 𝙩𝙝𝙚𝙢,𝗮𝗻𝗱 𝗶 𝗳𝗶𝗻𝗱 𝘁𝗵𝗲𝗺 𝗿𝗲𝗮𝗹𝗹𝘆 𝗰𝗼𝗼𝗹 / 𝗽𝗿𝗲𝘁𝘁𝘆.``
 
 `` !! 𝙞𝙛 𝙞 𝙢𝙚𝙨𝙨 𝙪𝙥 𝙮𝙤𝙪𝙧 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙢𝙖𝙠𝙚 𝙮𝙤𝙪 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙞𝙣 𝙖𝙣𝙮 𝙬𝙖𝙮, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙛𝙤𝙧𝙢 𝙢𝙚 𝙛𝙤𝙧 𝙞 𝙙𝙤𝙣𝙩 𝙩𝙖𝙠𝙚 𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜 𝙩𝙤 𝙝𝙚𝙖𝙧𝙩.``
+
+
 ──── ୨୧ ────
 
 ``im currently very busy studying for my senior national exams, so expect me to be barely online / not online at all on any socials.`` 
