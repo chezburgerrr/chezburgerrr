@@ -29,7 +29,7 @@
 
 ``𝙞𝙢 𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 ``
 
-``𝙢𝙮 𝙛𝙖𝙫 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 𝙤𝙖𝙩 𝙖𝙧𝙚 𝙑  , 𝙏𝙤𝙢𝙪𝙧𝙖 𝙎𝙝𝙞𝙜𝙖𝙧𝙖𝙠𝙞 , 𝙖𝙣𝙙 𝘼𝙣𝙖 𝘼𝙢𝙖𝙧𝙞 `` 
+``𝙢𝙮 𝙛𝙖𝙫 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 𝙤𝙖𝙩 𝙖𝙧𝙚 𝙑 (𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙝𝙮𝙥𝙚𝙧𝙛𝙞𝙭𝙖𝙩𝙞𝙤𝙣 𝙡𝙤𝙡)  , 𝙏𝙤𝙢𝙪𝙧𝙖 𝙎𝙝𝙞𝙜𝙖𝙧𝙖𝙠𝙞 , 𝙖𝙣𝙙 𝘼𝙣𝙖 𝘼𝙢𝙖𝙧𝙞 `` 
 
 ──── ୨୧ ────
                                                     
@@ -46,9 +46,6 @@
 
 ──── ୨୧ ────
 
-``im currently very busy studying for my senior national exams, so expect me to be barely online / not online at all on any socials.`` 
-
-``wish me luck!!``
 
 ``(づ> v <)づ♡ ``
 
