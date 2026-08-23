@@ -50,7 +50,7 @@
 <p align="center">──── ୨୧ ────
 
 
-<p align="center">``(づ> v <)づ♡ ``
+``(づ> v <)づ♡ ``
 
 
 
