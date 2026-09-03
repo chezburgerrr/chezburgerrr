@@ -22,7 +22,6 @@
 
 <p align="center"> 𝗝𝗮𝗻 𝟳𝘁𝗵 𝟮𝟬𝟬𝟴 
 
-<p align="center"> 𝘐𝘕𝘍𝘗  ⋆˚✿˖°
 
 <p align="center">𝙞 𝙡𝙤𝙫𝙚 𝙫𝙞𝙙𝙚𝙤𝙜𝙖𝙢𝙚𝙨, 𝙖𝙣𝙞𝙢𝙚, 𝙢𝙪𝙨𝙞𝙘 𝙚𝙩𝙘.
 
